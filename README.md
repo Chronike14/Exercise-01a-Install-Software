@@ -7,7 +7,7 @@ Donovan Eidenback
 *I could not get it to sign me up*
 
 ## My github username is:
-CHronike14
+Chronike14
 
 ## My replit username is:
 @Chronike14
